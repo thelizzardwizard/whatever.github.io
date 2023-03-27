@@ -1,1 +1,1 @@
-# webz
+# thelizzardwizard.github.io
